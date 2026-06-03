@@ -59,4 +59,4 @@ I used Claude as a thinking partner to verify formulas, stress-test reasoning, a
 
 ---
 
-**Contact:** [your.email@example.com] | [LinkedIn URL]
+**Contact:** shreyasreddy611@gmail 
